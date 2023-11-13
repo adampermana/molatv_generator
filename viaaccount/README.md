@@ -1,0 +1,1 @@
+Untuk Generate Account Premium Mola TV via file viaaaccount, Nanti kalian tinggal open file kalian run klik running.
